@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @fuiyiqi
 - i like watching movies
-- no clue how to use github yet
+
